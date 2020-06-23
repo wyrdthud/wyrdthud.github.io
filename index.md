@@ -9,3 +9,4 @@ Das Grumpflschnu lebt üblicherweise in Waldmooren. Es ist ein Einzelgänger und
 * trocknet Lebensmittel zur Haltbarmachung
 * trägt Tierfelle gegen Kälte
 * betreibt Maschinenbau bewusst nur auf kleinem Niveau
+> Uga tschu meckteck fnulpf tarrabork nimlept wutrilz.
